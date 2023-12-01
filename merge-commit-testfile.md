@@ -1,0 +1,1 @@
+> We are not responsible for possible damage to your PC
